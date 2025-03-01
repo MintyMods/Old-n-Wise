@@ -1,1 +1,1 @@
-Old-n-Wise - Counter Strike Source Clan
+Old-n-Wise - Counter Strike Clan
